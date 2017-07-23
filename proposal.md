@@ -1,6 +1,6 @@
 #Proposal
 
-These sections are temporary sections you will fill in later.
+These sections are sections you will fill in later. You may make up your own sections and add more as you and your team believe are needed. 
 
 #Introduction
 
